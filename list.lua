@@ -1,4 +1,3 @@
 Heydar_Moslemi
 Nazi
 Nazi_Existence
-amir_bbcsl
